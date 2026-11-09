@@ -278,6 +278,7 @@ Why am I turning my bookmarks into a public repo? The problem with marketing rel
 - [High Output Marketing](https://www.positivehuman.co/articles/high-output-marketing)
 - [Taking Your Customer’s Side Is The Most Underrated Growth Hack](https://entrepreneurshandbook.co/taking-your-customers-side-is-the-most-underrated-growth-hack-6e216516e9f)
 - [Trendjacking Without the Cringe](https://sparktoro.com/blog/trendjacking-without-the-cringe/)
+- [RIO Integrated Marketing Campaign Framework](https://www.julienrio.com/landing/RIO-Integrated-Marketing-Campaign-Framework.php)
 
 # Teams, Leadership, and Management
 
